@@ -1,4 +1,5 @@
-### Hi there 👋
+### Hi there 👋, Click and listen below :point_down:
+
 [![Watch now!](https://64.media.tumblr.com/409af86302443049990fcd6807de796d/tumblr_n9777wIjzU1twdzvro1_500.gifv)](https://www.youtube.com/watch?v=2Vv-BfVoq4g)
 
 <!--
