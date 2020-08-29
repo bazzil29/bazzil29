@@ -1,5 +1,5 @@
 ### Hi there 👋
-[![Watch now!](https://giphy.com/gifs/zayn-malik-gif-thirst-nMUfs96PKFgas)](https://www.youtube.com/watch?v=2Vv-BfVoq4g)
+[![Watch now!](https://64.media.tumblr.com/409af86302443049990fcd6807de796d/tumblr_n9777wIjzU1twdzvro1_500.gifv)](https://www.youtube.com/watch?v=2Vv-BfVoq4g)
 
 <!--
 **bazzil29/bazzil29** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
